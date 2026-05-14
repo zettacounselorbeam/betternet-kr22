@@ -1,4 +1,4 @@
-
+ultra-secure Betternet Extension | money-back-guarantee + obfuscation is the best Betternet extension, featuring money-back-guarantee and obfuscation. Secure, fast, and optimized
 
 
 
